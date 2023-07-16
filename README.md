@@ -5,7 +5,6 @@
 ![](SS18.jpeg)
 ![](new2.jpeg)
 ![](new.jpeg)
-![](SS16.jpeg)
 ![](SS15.jpeg)
 ![](SS14.jpeg)
 ![](SS13.jpeg)
